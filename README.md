@@ -1,2 +1,5 @@
-# latihan
-Latihan LKS 2021
+# LATIHAN
+Nama: Semuel Iszak Nussy
+Email: 
+Sekolah: 
+Provinsi: Papua
